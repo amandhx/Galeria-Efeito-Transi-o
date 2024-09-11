@@ -1,0 +1,1 @@
+# Galeria-Efeito-Transi-o
